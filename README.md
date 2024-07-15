@@ -5,3 +5,4 @@ You can also filter by the type of log.
 
 https://github.com/user-attachments/assets/c80b0b0a-22a4-4415-8d68-e587793e0d15
 
+https://www.youtube.com/watch?v=VDh6OqX1WvI
